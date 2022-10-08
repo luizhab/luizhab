@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @luizhab
+- 👋 Hi, I’m Luiz Henrique
 - 👀 I’m interested in explore new ways to see the world. Meet new people, know new cultures, travel, work in a team. The more I know the world, more I know myself.
 - 🌱 I’m currently learning the basic of Technology, and knowing the fieds of this huge area, to choose some to build my career soon.
 - 💞️ I’m looking to collaborate on things that can make the world better. Tech has a huge potential to transform the world and make people lives easier.
